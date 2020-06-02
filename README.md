@@ -9,7 +9,7 @@ The main idea is just to show all the most important trekkings of area. This reg
 
 
 
-For those that wants to help, a huge help would be a translation of all the content to english or Spanish. If you are learning Portugues, it's a good chance to help and practice!
+For those that wants to help, a huge help would be a translation of all the content to english or Spanish. If you are learning Portuguese, it's a good chance to help and improve!
 
 
 This web site don't have the intention to be a travel adventure agency! Whoever it's completely non-profit.
