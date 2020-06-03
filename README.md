@@ -15,9 +15,9 @@ For those that wants to help, a huge help would be a translation of all the cont
 
 This web site don't have the intention to be a travel adventure agency! Thefore, it's completely non-profit.
 
-Today the progress to finish the first part are about 60%.
+Today the project progress to finish the first part are about 60%.
 
 
-
+ 
 
 
